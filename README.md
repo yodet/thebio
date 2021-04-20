@@ -1,5 +1,5 @@
 # thebio
-Hi my name is Yodet, located in the Greater-Seattle area, I am an educator with 4 years experience in an array of youth enrichment programs from beginner level coding to music. I was the youngest employee to be promoted from assitant to lead teacher, where I taught elementrary students how to code using kid-freindly softwares, while also getting advanced students acclimated with video game design. 
+Hi my name is Yodet! Located in the Greater-Seattle area, I am an educator with 4 years experience in an array of youth enrichment programs from beginner level coding to music. I was the youngest employee to be promoted from assitant to lead teacher. I taught elementrary students how to code using kid-freindly softwares, while also getting advanced students acclimated with video game design. 
 
 I am a great communicator, I can adapt to any environment and am always willing to mirror my clients to provide the best possible experience-- my skills reach double the people! It is my passion to make people feel heard and understood. I mirror my collegues or business partners by being a team player and always ready to collaborate with others.
 
