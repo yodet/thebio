@@ -1,8 +1,6 @@
 # thebio
-Hi my name is Yodet, Im an educator with 4 years experience in an array of youth enrichment programs from beginner level coding to music. 
+Hi my name is Yodet, located in the Greater-Seattle area, I am an educator with 4 years experience in an array of youth enrichment programs from beginner level coding to music. I was the youngest employee to be promoted from assitant to lead teacher, where I taught elementrary students how to code using kid-freindly softwares, while also getting advanced students acclimated with video game design. 
 
-I am a great communicator so i know my skills reach double the people which is the most fulfilling thing to me honestly 
+I am a great communicator, I can adapt to any environment and am always willing to mirror my clients to provide the best possible experience-- my skills reach double the people! It is my passion to make people feel heard and understood. I mirror my collegues or business partners by being a team player and always ready to collaborate with others.
 
-I love making people feel heard and understood, so I mirror my collegues or business partners by adapting and blending to different environments. 
-
-Also, I consider myself a creative, and have worked in various projects to bringing people to channel their creative side, I’d love to set a meeting time with you to show you my templates!
+Also, I consider myself a creative mediator, and have worked in various projects to bring people to channel their creative side in order to create solutions for team productivity and conflcit resolution. I appreciate the little things, so I'm always up for a day in nature or passing some time with farm animals on my free time. If you’d like to set a meeting time for tech talk, feel free to shoot me an email.
